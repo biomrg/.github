@@ -1,2 +1,0 @@
-# .github
-BioMed Research Group
