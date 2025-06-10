@@ -1,5 +1,5 @@
 
-**BioMed Research Group**
+**BioM Research Group**
 
 # Biomedical Imaging Research Group for Advanced Diagnostics & Therapeutics
 
