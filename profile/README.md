@@ -5,7 +5,7 @@
 
 Please visit and join us at [biomrg.org](https://biomrg.org)
 
-Upcoming event [click here](https://lu.ma/afhh5wog)
+Upcoming event [click here](https://lu.ma/user/biomrg)
 
 **Build in progress**
 
