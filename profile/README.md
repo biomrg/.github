@@ -5,6 +5,8 @@
 
 Please visit and join us at [biomrg.org](https://biomrg.org)
 
+Upcoming event [click here](https://lu.ma/afhh5wog)
+
 **Build in progress**
 
 Inviting enthusiastic members with a skillset in AI, Machine Learning, Image-guided tools development, or Radiology.
