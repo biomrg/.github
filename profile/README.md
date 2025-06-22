@@ -5,7 +5,7 @@
 
 Please visit and join us at [biomrg.org](https://biomrg.org)
 
-Upcoming event [click here](https://lu.ma/user/biomrg)
+Join our LinkedIn page [click here](https://www.linkedin.com/company/biom-research-group/?viewAsMember=true)
 
 **Build in progress**
 
