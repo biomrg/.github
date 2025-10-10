@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/8fdf3ec5-88d5-4888-ac27-6183e1ecff57)
+<img width="4400" height="2470" alt="biom-git-banner" src="https://github.com/user-attachments/assets/adeaea20-67be-420f-9a75-9614d9c5be1e" />
+
 
 ## 🌐 **About Biom Research Group** [LinkedIn](https://www.linkedin.com/company/biom-research-group/?viewAsMember=true)
 
