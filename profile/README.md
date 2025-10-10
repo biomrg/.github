@@ -1,17 +1,8 @@
-
-**BioM Research Group**
-
-Please visit and join us at [biomrg.org](https://biomrg.org)
-
-Join our LinkedIn page [click here](https://www.linkedin.com/company/biom-research-group/?viewAsMember=true)
-
-[Click here](https://forms.gle/wRqXbnSSDVwbb4oZ9) for the members' application form. 
-
 ![image](https://github.com/user-attachments/assets/8fdf3ec5-88d5-4888-ac27-6183e1ecff57)
 
-## 🌐 **About Biom Research Group**
+## 🌐 **About Biom Research Group** [LinkedIn](https://www.linkedin.com/company/biom-research-group/?viewAsMember=true)
 
-**Biom Research Group** is where innovation meets impact.
+**Biom Research Group** [biomrg.org](https://biomrg.org) is where innovation meets impact.
 We exist to connect brilliant minds, bold ideas, and breakthrough technologies—turning research into reality.
 
 Biom is more than a research hub; it’s a **collaborative innovation ecosystem** designed to bridge the gap between academia, startups, and industry. Our mission is simple yet powerful: **to accelerate the journey from “Lab to Market.”**
